@@ -10,6 +10,6 @@
 
 - alura
 
--malura
+- malura
 
 - FAN DO MANEL GOMES 
