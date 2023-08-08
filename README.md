@@ -6,4 +6,10 @@
 
 - esdudo muito e nn ganho nd
 
-- ### 🦖
+- ### 🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖
+
+- alura
+
+-malura
+
+- FAN DO MANEL GOMES 
