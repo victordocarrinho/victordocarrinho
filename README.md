@@ -6,11 +6,11 @@
 
 - esdudo muito e nn ganho nd
 
-- ### 🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖🦖
+- ### 💙💙💙💙💙💙💙💙💙
 
 - alura
 
 - malura
 
 - FAN DO MANEL GOMES 
-https://youtu.be/xE5TaJJAyU0
+![](https://youtu.be/xE5TaJJAyU0)
