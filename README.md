@@ -8,7 +8,7 @@
 
 - ### 💙💙💙💙💙💙💙💙💙
 
-- (https://alura)
+- [alura](https//alura)
 
 - malura
 
